@@ -1,5 +1,5 @@
 # 💫 About Me:
-Software Engineering student<br>i like Watch Football & Formula 1<br>i’m passionate about learning new technologies<br><br>
+Software Engineering student<br>i like Watch Football & Formula 1 & Motorsports <br>i’m passionate about learning new technologies<br><br>
 
 
 ## 🌐 Socials:
